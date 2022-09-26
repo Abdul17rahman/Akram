@@ -1,1 +1,1 @@
-This a Photography website for Akram M
+This is Akram Mahoro Photography
